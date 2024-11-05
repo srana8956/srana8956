@@ -1,4 +1,4 @@
 Join my personal profile
 👇👇👇👇👇👇👇👇👇
 
-https://is.gd/SJnuhT
+https://acortar.link/Uy2uZs
