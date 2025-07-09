@@ -1,4 +1,4 @@
 Join my personal profile
 👇👇👇👇👇👇👇👇👇
 
-https://acortar.link/dnOplQ
+https://shorturl.at/7kU4S
